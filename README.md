@@ -1,0 +1,1 @@
+# LauraTech.Guarapuava.AteLogo
